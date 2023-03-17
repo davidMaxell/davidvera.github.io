@@ -1,1 +1,0 @@
-# davidvera.github.io
